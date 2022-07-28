@@ -1,4 +1,4 @@
-![info](https://i.pinimg.com/564x/bb/36/2f/bb362f41adcf0d22e229ced70e2cf68c.jpg)
+![info](![изображение](https://user-images.githubusercontent.com/87410389/181585799-03a867ef-605c-40dd-8d79-049c55e82903.png))
 
 ### Hi there 👋
 
