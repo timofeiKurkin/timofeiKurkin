@@ -1,4 +1,4 @@
-![info](https://i.pinimg.com/564x/2b/61/b0/2b61b08d7ab37707c8170f115433df92.jpg)
+![info](https://i.pinimg.com/564x/bb/36/2f/bb362f41adcf0d22e229ced70e2cf68c.jpg)
 
 ### Hi there 👋
 
